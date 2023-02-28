@@ -1,1 +1,1 @@
-# I-ama-picky-namer.
+# I-am-a-picky-namer.
